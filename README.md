@@ -1,5 +1,5 @@
 
-# hey , hi I'm Alejandro!
+# hey , I'm Alejandro!
 
 
 
